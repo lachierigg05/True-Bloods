@@ -1,3 +1,3 @@
 # True Bloods
-### This is True Bloods
-### The #1 Inderpendant Sydney Swans Fan Podcast
+##### This is True Bloods
+##### The #1 Independent Sydney Swans Fan Podcast
